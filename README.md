@@ -1,1 +1,0 @@
-# GNNAA-Tables-Assignment
